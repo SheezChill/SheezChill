@@ -1,1 +1,1 @@
-I haven't contributed to any repositories yet
+I haven't contributed to any public repositories yet
